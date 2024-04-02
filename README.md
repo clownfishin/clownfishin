@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning how to exist
 - 💞️ I’m looking to collaborate on not sure yet
 - 📫 How to reach me: clownfishbeclowning - discord
-- 😄 Pronouns: they/them
+- 😄 Pronouns: they/any
 - ⚡ Fun fact: i didn't know this would grab my pronouns page avatar lol
 
 <!---
