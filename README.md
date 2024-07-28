@@ -1,10 +1,10 @@
-- 👋 Hi, I’m @clownfishin
-- 👀 I’m interested in you
-- 🌱 I’m currently learning how to exist
+- 👋 Hi, I’m @clownfishin , you can call me Kal or Dayton too if you want
+- 👀 I’m interested in anything and everything
+- 🌱 I’m currently learning how to exist (nah but like genuinely)
 - 💞️ I’m looking to collaborate on not sure yet
 - 📫 How to reach me: clownfishbeclowning - discord
 - 😄 Pronouns: they/any
-- ⚡ Fun fact: i didn't know this would grab my pronouns page avatar lol
+- ⚡ Fun fact: spy doesn't think big chungus is funny
 
 <!---
 clownfishin/clownfishin is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
