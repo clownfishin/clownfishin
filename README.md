@@ -2,7 +2,9 @@
 - 👀 I’m interested in anything and everything
 - 🌱 I’m currently learning how to exist (nah but like genuinely)
 - 💞️ I’m looking to collaborate on not sure yet
-- 📫 How to reach me: clownfishbeclowning - discord , kalfishin.bsky.social
+- 📫 How to reach me:
+  clownfishbeclowning - discord
+  clownfishin.industryplant.club - website & bluesky
 - 😄 Pronouns: they/any
 - ⚡ Fun fact: spy doesn't think big chungus is funny
 
